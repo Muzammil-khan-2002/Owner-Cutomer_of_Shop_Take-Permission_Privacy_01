@@ -1,0 +1,1 @@
+# Owner-Cutomer_of_Shop_Take-Permission_Privacy_01
